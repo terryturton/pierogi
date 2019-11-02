@@ -27,7 +27,7 @@ Sauerkraut: Bring to a boil then lower the temperature and simmer until tender, 
 
 Onions: Chop onion and brown in a frying pan.  This actually takes quite a while over medium to medium-high heat.  You really want them brown.  For me, growing up making pierogi every year at Christmas-time, the smell of browning onions is redolent of holidays and family and everything wonderful.
 
-Add the sauerkraut and onions to the potatoes.  Use the cheese to bind the mix together.  Taste and adjust the seasonings as needed.  The onions make it sweeter and there is a balance between sauerkraut and potatoes.  If you have ever had the really heavy potato and cheese pierogi at a local fair, these are not like those.  The sauerkraut makes it much lighter, not so heavy and dense.
+Add the sauerkraut and onions to the potatoes.  Use the cheese to bind the mix together.  Taste and adjust the seasonings as needed.  The onions make it sweeter and there is a balance between sauerkraut and potatoes.  If you have ever had the really heavy potato and cheese pierogi at a local fair, these are not like those.  The sauerkraut makes it much lighter. 
 
 Blueberry Filling
 ^^^^^^^^^^^^^^^^^
